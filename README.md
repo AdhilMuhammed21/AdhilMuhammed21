@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @AdhilMuhammed21
-- 👀 I’m interested in Gaming
 - 🌱 I’m currently learning Web designing
 - reach me @ adhilek46@gmail.com
 
